@@ -1,1 +1,1 @@
-Wow osdg is so coool 😎
+I shot an elephant in my pyjamas
